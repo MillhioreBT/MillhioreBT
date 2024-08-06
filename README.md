@@ -7,4 +7,4 @@
 - $\textcolor{#AA6C7E}{I\ would\ like\ to\ travel\ to\ Earth's\ orbit\ one\ day,\ and\ maybe\ to\ other\ planets.}$
 - $\textcolor{#616167}{I\ would\ like\ to\ be\ able\ to\ create\ an\ artificial\ general\ intelligence\ and\ call\ it:\ The\ Director}$
 
-Join [my discord server](https://discord.com/invite/4g7hJMX4KX) and find out interesting things for your Tibia server.
+Join [my discord server]([https://discord.com/invite/4g7hJMX4KX](https://discord.com/servers/millhiore-bt-1018417615888199680)) and find out interesting things for your Tibia server.
