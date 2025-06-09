@@ -1,5 +1,5 @@
 ## 𝓜𝓲𝓵𝓵𝓱𝓲𝓸𝓻𝓮 𝓑𝓣
-- Dilemma: We can reduce the chances of dying, but you can never reduce them 100 percent.
+- Dilemma: We can reduce the chances of dying, but you can never reduce them to zero.
 - Note: Needless to mention, I am a fan of the fictional character Hatsune Miku.
 
 ![Chibi Hatsune Miku](https://github.com/MillhioreBT/MillhioreBT/assets/28090948/19f6410a-1945-4192-80f0-5c6a89aad44e)
